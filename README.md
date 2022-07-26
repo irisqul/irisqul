@@ -9,3 +9,5 @@ I have took half-year courses on ethical web-hacking, basic algorythms with Pyth
 
 📫 How to reach me: irina.rudnichenko@gmail.com
 
+my full CV: https://www.linkedin.com/in/irina-rudnichenko-b9020661/
+
